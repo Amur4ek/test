@@ -1,3 +1,3 @@
 Hello world!
 
-i study in Netology
+7 october 2023
